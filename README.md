@@ -1,1 +1,1 @@
-CheckOut this Template here >> https://yeganathan.github.io/Parallax-Website-Template/
+CheckOut this Template here >> https://yeganathan18.github.io/Parallax-Website-Template/
